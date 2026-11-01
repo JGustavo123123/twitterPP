@@ -1,1 +1,161 @@
-apopo
+Saved
+1. https://x.com/bryanponttes/status/1612536808121802753
+2. https://x.com/x_hayacchi_x/status/1488047724381437953
+3. https://x.com/boyfuk0/status/1671770477822644224
+4. https://x.com/x_hayacchi_x/status/1672772657174163456
+5. https://x.com/Nagrolaz/status/1780395964861432319
+6. https://x.com/774nanash/status/1741855071158276435
+7. https://x.com/NiksonCrazy/status/1709651584144327093
+8. https://x.com/otakumode_jp/status/1614882740205424640
+9. https://x.com/sadistoro/status/1625151096854388738
+10. https://x.com/NagatoroSenpai/status/1421885071833894912
+11. https://x.com/NagatoroSenpai/status/1388585130831355910
+12. https://x.com/NagatoroSenpai/status/1395462496228675586
+13. https://x.com/Rafuxvideos/status/1998192706116313246
+14. https://x.com/ggjaime1/status/1998194651476767080
+15. https://x.com/AnaPaulaMatosBA/status/2019738274198335489
+16. https://x.com/Venezuela_088/status/2003226785853669779
+17. https://x.com/Unikron_/status/2002853065557516782
+18. https://x.com/WarZippyXD/status/2021740395227402291
+19. https://x.com/Pingalaxy_77722/status/2020494506492342446
+20. https://x.com/NagatoroPosting/status/2020094708832498001
+21. https://x.com/XxSpicy_LemonxX/status/1779972469496975623
+22. https://x.com/NagatoroPosting/status/1981924032976208170
+23. https://x.com/ArturMS0644/status/1936527377133437378
+24. https://x.com/Davi32a222/status/2010482726344769768
+25. https://x.com/rockehatt/status/2033894519930822883
+26. https://x.com/Coreanissimo/status/1786547524976718289
+27. https://x.com/Coreanissimo/status/1394737558341529603
+28. https://x.com/Davi32a222/status/2055343617821024427
+29. https://x.com/Davi32a222/status/2054760520117350861
+30. https://x.com/Davi32a222/status/2049119427258368266
+31. https://x.com/brainletbr/status/2041237002822279553
+32. https://x.com/Davi32a222/status/2039478207066292534
+33. https://x.com/Davi32a222/status/2038627203072627018
+34. https://x.com/China33nsfw/status/1871617715963879532
+35. https://x.com/DudeOh593881/status/1912289594764132393
+36. https://x.com/PanzaarMjarden/status/1980704723532673140
+37. https://x.com/CJaWanderer/status/2010720026094125352
+38. https://x.com/boyfuk0/status/1943963033262248257
+39. https://x.com/DekoSenpai1992/status/1877458407365427476
+40. https://x.com/la_cambiadora/status/1874707462802321674
+41. https://x.com/HayasesNagatoro/status/2067189892564541537
+42. https://x.com/st4rcannon/status/2066237369012068814
+43. https://x.com/FatSnorlaxOG/status/2056650522141339915
+44. https://x.com/st4rcannon/status/2066256337986834575
+45. https://x.com/NagatoroPosting/status/2067609642205909019
+46. https://x.com/ChibiReviews/status/2058910499064905926
+47. https://x.com/JoaoVictorBBbr/status/2039470628835570153
+48. https://x.com/NagatoroPosting/status/2035574914271600865
+49. https://x.com/FatSnorlaxOG/status/2043594882598764696
+50. https://x.com/TheTomokoLover/status/2047863398423990527
+51. https://x.com/NagatoroPosting/status/1983385391790207140
+52. https://x.com/FatSnorlaxOG/status/1755601459260092896
+53. https://x.com/FatSnorlaxOG/status/2089244812323201323
+54. https://x.com/NagatoroBot_NBT/status/1624825970409582593
+55. https://x.com/NagatoroBot_NBT/status/1576237271577088000
+56. https://x.com/NagatoroBot_NBT/status/1567246622811095043
+57. https://x.com/NagatoroBot_NBT/status/1567244089619357697
+58. https://x.com/NagatoroBot_NBT/status/1567244168803618817
+59. https://x.com/NagatoroBot_NBT/status/1553114781502132224
+60. https://x.com/NagatoroBot_NBT/status/1552453145028091908
+61. https://x.com/NagatoroBot_NBT/status/1540460456250310657
+62. https://x.com/NagatoroBot_NBT/status/1532789751144669185
+63. https://x.com/NagatoroBot_NBT/status/1532789704025944065
+64. https://x.com/NagatoroBot_NBT/status/1532789511490523137
+65. https://x.com/NagatoroBot_NBT/status/1532573099782246411
+66. https://x.com/NagatoroBot_NBT/status/1532099329460158468
+67. https://x.com/NagatoroBot_NBT/status/1532429138149183488
+68. https://x.com/NagatoroBot_NBT/status/1526955936773963777
+69. https://x.com/NagatoroBot_NBT/status/1526955970483699713
+70. https://x.com/NagatoroBot_NBT/status/1526956020655960065
+71. https://x.com/NagatoroBot_NBT/status/1527070311367188482
+72. https://x.com/NagatoroBot_NBT/status/1521960800302284802
+73. https://x.com/NagatoroBot_NBT/status/1521642366049951745
+74. https://x.com/NagatoroBot_NBT/status/1512897536528420883
+75. https://x.com/NagatoroBot_NBT/status/1512897623270866955
+76. https://x.com/NagatoroBot_NBT/status/1512520453126082567
+77. https://x.com/NagatoroBot_NBT/status/1511407821706956813
+78. https://x.com/NagatoroBot_NBT/status/1509287815284207616
+79. https://x.com/NagatoroBot_NBT/status/1508852081565880392
+80. https://x.com/NagatoroBot_NBT/status/1508510851086565380
+81. https://x.com/NagatoroBot_NBT/status/1508631826562179072
+82. https://x.com/NagatoroBot_NBT/status/1508631729296322565
+83. https://x.com/NagatoroBot_NBT/status/1504562068086734858
+84. https://x.com/NagatoroBot_NBT/status/1504987873724018692
+85. https://x.com/NagatoroBot_NBT/status/1505215909488734214
+86. https://x.com/NagatoroBot_NBT/status/1505215822133878786
+87. https://x.com/NagatoroBot_NBT/status/1504987741603483651
+88. https://x.com/NagatoroBot_NBT/status/1501265734822813700
+
+Likes
+1. https://x.com/Rafuxvideos/status/1985770458537476315
+2. https://x.com/clarionrox/status/2013586391989432599
+3. https://x.com/ivl2v/status/1990811715974672446
+4. https://x.com/ivl2v/status/1990811715974672446
+5. https://x.com/NagatoroSan655/status/1910892481182302672
+6. https://x.com/marinz1nha/status/2019554133095903367
+7. https://x.com/King_Lunariano/status/2018405272595632403
+8. https://x.com/Pingalaxy_77722/status/2020494506492342446
+9. https://x.com/774nanash/status/2009261692836773918
+10. https://x.com/Davi32a222/status/2010482726344769768
+11. https://x.com/NagatoroSan655/status/1929212272347328532
+12. https://x.com/Baqua7/status/1722302561019969997
+13. https://x.com/_gabzx1/status/1803511981523062801
+14. https://x.com/shitmaispost/status/2069968318493000105
+15. https://x.com/NagatoroPosting/status/2067609642205909019
+16. https://x.com/Coreanissimo/status/1394737558341529603
+17. https://x.com/TheTomokoLover/status/2043474324451930127
+18. https://x.com/NagatoroDaily/status/1713269859688063210
+19. https://x.com/TehDubbz/status/2073680341336768525
+20. https://x.com/FatSnorlaxOG/status/2084303942993797625
+
+ following
+ 
+ 1. https://x.com/nagatoro_tv
+ 2. https://x.com/nagatoro_pt
+ 3. https://x.com/NagatoroWOTD
+4. https://x.com/x_hayacchi_x
+ 5. https://x.com/mao_diosa
+ 6. https://x.com/774nanash
+ 7. https://x.com/nagatoro_senpai
+ 8. https://x.com/7uusan
+ 9. https://x.com/AlphaRecdyt
+ 10. https://x.com/NagatoroBot_NBT
+ 11. https://x.com/CerberusAgent_
+ 12. https://x.com/NagatoroSenpai
+ 13. https://x.com/Nagator49909738
+ 14. https://x.com/NagatoroBR
+15. https://x.com/DNagatoro
+16. https://x.com/NagatoroSan31
+17. https://x.com/nagatoro_1
+18. https://x.com/Nagatoro_BW
+19. https://x.com/sadistoro
+20. https://x.com/Nagator63
+21. https://x.com/Luciano45930631
+22. https://x.com/NagatoroSan655
+23. https://x.com/taqmin39
+24. https://x.com/EmmaShi60095622
+25. https://x.com/NagatoroSannn
+26. https://x.com/XxSpicy_LemonxX
+27. https://x.com/NagatoroPosting
+28. https://x.com/Davi32a222
+29. https://x.com/Coreanissimo
+30. https://x.com/Daily_Sunomiya
+31. https://x.com/watamotemanga
+32. https://x.com/TomokodeRiver
+33. https://x.com/Decomkitty
+34. https://x.com/NAGAPAI192982
+35. https://x.com/NagatoroDaily
+36. https://x.com/Matiazz_r
+37. https://x.com/Toko_Daily
+38. https://x.com/TheTomokoLover
+39. https://x.com/AlbinoP450
+40. https://x.com/TomokodelBolso
+41. https://x.com/Koran14yao
+42. https://x.com/FatSnorlaxOG
+43. https://x.com/KayCraft
+44. https://x.com/thelaimo
+45. https://x.com/Sonic1441085289
+46. https://x.com/_NagatoroFan_
+
